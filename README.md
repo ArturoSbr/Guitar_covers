@@ -1,6 +1,6 @@
 # Guitar covers
 
-1. Red Hot Chili Peppers - I could die for you
+1. Red Hot Chili Peppers - I Could Die for You
 2. Peach Pit - Sweet FA
 3. Weezer - Say it Ain't So
 4. Nirvana - Lithium
